@@ -1,1 +1,1 @@
-![Video](ezgif.com-video-cutter.mp4)
+![Video](ezgif.com-optimize.gif)
